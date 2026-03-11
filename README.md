@@ -1,1 +1,2 @@
-# Redx
+# Red X - IT & Software Solutions 🚀
+
